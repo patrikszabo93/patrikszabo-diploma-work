@@ -9,3 +9,9 @@
 
 
  ![alt text](https://images.news18.com/ibnlive/uploads/2023/05/collage-maker-05-may-2023-10-45-am-5590.jpg)
+
+
+ | Főváros | Wellington |
+| ----------- | ----------- |
+| Népesség | 5,1 millió |
+| Földrész | Óceánia |
