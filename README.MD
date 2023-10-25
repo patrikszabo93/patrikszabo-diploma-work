@@ -1,6 +1,6 @@
-Szabó Patrik
+                                                ###Szabó Patrik
 
-New Zealand 
+                                                   #####Új-Zéland#####
 
 
 **Új-Zéland két nagyobb és számos kisebb szigetből álló ország a Csendes-óceán délnyugati részén.
