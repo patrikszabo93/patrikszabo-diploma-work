@@ -28,7 +28,8 @@
 - Új-Kaledónia  
 - Fidzsi-szigetek 
 - Tonga szigetek helyezkednek el viszonylag közel.
-          
-           Területe Magyarország területének majdnem háromszorosa..
+        
+        
+Területe Magyarország területének majdnem háromszorosa..
 
-           [world atlas](https://www.worldatlas.com)
+[world atlas](https://www.worldatlas.com)
