@@ -31,4 +31,4 @@
           
            Területe Magyarország területének majdnem háromszorosa..
 
-           [world atlas](https://www.worldatlas.com/maps/new-zealand)
+           [world atlas](https://www.worldatlas.com)
