@@ -21,10 +21,10 @@
 
  A másik legközelebbi nagyobb szárazföld 
  délen :
- -Antarktisz 
+ - Antarktisz 
  északon:
--Új-Kaledónia  
--Fidzsi-szigetek 
--Tonga szigetek helyezkednek el viszonylag közel.
+- Új-Kaledónia  
+- Fidzsi-szigetek 
+- Tonga szigetek helyezkednek el viszonylag közel.
           
            Területe Magyarország területének majdnem háromszorosa..
