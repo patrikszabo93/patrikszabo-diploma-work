@@ -30,3 +30,5 @@
 - Tonga szigetek helyezkednek el viszonylag közel.
           
            Területe Magyarország területének majdnem háromszorosa..
+
+           [world atlas](https://www.google.com/search?q=new+zealand&newwindow=1&sca_esv=576560510&rlz=1C1PNFE_enHU1027HU1027&tbm=isch&sxsrf=AM9HkKnM0zyFJClDIdi21Qme1nMJa_aAqw:1698255908480&source=lnms&sa=X&ved=2ahUKEwjzkKah4JGCAxVd1wIHHdlmAJYQ_AUoAXoECAMQAw&biw=1920&bih=955&dpr=1#imgrc=1ne3s8mqlCs9RM)
